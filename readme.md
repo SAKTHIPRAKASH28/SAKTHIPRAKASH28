@@ -1,5 +1,5 @@
 # 💫 About Me:
-A passionate developer willing to learn new technolgies everyday.
+A passionate developer dedicated to continuous learning and embracing new technologies every day. I thrive on challenges, constantly seeking opportunities to expand my skill set and contribute to innovative projects.
 
 
 ## 🌐 Socials:
